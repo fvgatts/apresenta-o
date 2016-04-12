@@ -1,1 +1,1 @@
-# apresentacção sobre o artigo x
+# apresentação sobre o artigo x
